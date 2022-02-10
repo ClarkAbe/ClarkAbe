@@ -4,7 +4,7 @@
 
 > Not Hacker, Probably a Moneyer.  =v=
 
-> But me love girl.（*＾-＾*）
+> But me love girl.（*＾-＾*）(of course cute boys can also 🐱)
 
 
 
