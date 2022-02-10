@@ -23,7 +23,7 @@ Most of them are items that cannot be made public......
 - 🦒 Deno (wait)
 - 💻  My Computer 
 
-##### Infos:
+##### 🤕 Infos:
 
 ![ClarkQAQ's GitHub stats](https://github-readme-stats.vercel.app/api?username=clarkqaq&show_icons=true&bg_color=30,e96443,904e95&title_color=fff&text_color=fff&icon_color=fff)
 
